@@ -1,5 +1,5 @@
 ### Hello
-There are a lot of interesting things.
+There are a lot of interesting things to be built and discovered.
 
 https://keremswiki.ovh/
 
